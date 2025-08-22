@@ -9,5 +9,5 @@ Meu objetivo é compartilhar de forma clara minhas competências, projetos e met
 🔍 Se você atua nessa área ou tem interesse em tecnologia, será um prazer trocar ideias, receber feedback e criar novas conexões. Vamos juntos impulsionar nossas jornadas!
 
 📌 Meus links:
-🔗 LinkedIn: https://lnkd.in/ejVdKe2e
+🔗 LinkedIn:(https://www.linkedin.com/in/jaquelinejf/)
 🔗 GitHub: https://lnkd.in/eP-eiDfS
